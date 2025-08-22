@@ -1,3 +1,5 @@
+⚡ Welcome, brave soul💪. You’ve unlocked the cheat codes💭to my brain — proceed with caution.‼️⚠️
+
 MY FIRST AI DOCUMENTATION 🚀
 
 A beginner-friendly log of my journey into Artificial Intelligence.
